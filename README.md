@@ -1,5 +1,5 @@
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![ata](https://mewstacy.atabook.org/)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](https://mewstacy.atabook.org/)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
 
