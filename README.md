@@ -1,6 +1,6 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](https://mewstacy.atabook.org/)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-![Image](https://cdn.discordapp.com/attachments/1221396371936907294/1279559521492271176/Screenshot_2024-08-31-15-51-07-36_1c337646f29875672b5a61192b9010f9.jpg?ex=68cb2daa&is=68c9dc2a&hm=b47d06957a269e5b24b518b6289ddaabcfad1a4cd01c821fcf36941909cd1831&)
+![Image](https://cdn.discordapp.com/attachments/1223392595078680647/1417796240753819668/Untitled22_20250917115533.png?ex=68cbc925&is=68ca77a5&hm=eaf815e81bc68949a6444b5e2796f276230a93a92b19ddedecd9a8f7c724bcb7&)
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  
