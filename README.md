@@ -2,3 +2,4 @@
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  
+https://hits.sh/github.com/Gummyglitter.svg?label=Babez&color=f9a3c3&labelColor=ffdee7&logo=%3AP
