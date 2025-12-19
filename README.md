@@ -1,1 +1,1 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image](https://cdn.discordapp.com/attachments/1223392595078680647/1451206841576067073/Untitled26_20251218142019.png?ex=69455531&is=694403b1&hm=b13e9f09502a028ac3c3a4e48f27edfffb57ff7d3ecf61997a311bab4e2aaf0c&)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image](https://cdn.discordapp.com/attachments/1223392595078680647/1451609355437736139/96dd93a6b4d751f35ed34c3c0d84f16d.jpg?ex=6946cc0f&is=69457a8f&hm=f402c0162a73b7bbf31978c764f8468a55ab0832934e0babdaeecebdb78becbc&)
