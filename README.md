@@ -1,3 +1,3 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image](https://cdn.discordapp.com/attachments/1223392595078680647/1452024760358801491/9f54bf0ae9bf6a7fe62be288c0a93687.gif?ex=69484ef0&is=6946fd70&hm=3e71979f283e583ccbc0c1d68494f7f9bbe141464c330d3ab8b8b564b3521b13&)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image](https://cdn.discordapp.com/attachments/1223392595078680647/1452051644450734133/Untitled28_20251220233355.png?ex=694867f9&is=69471679&hm=4e2444780339f545f24ad044c9e820771fe31ab2a0aebb5ac54186063213a07d&)
 
 [***STRAW***](https://pasholnahhuj.straw.page/) ㅤㅤㅤㅤ[***ATA***](https://mewstacy.atabook.org/) ㅤㅤㅤㅤㅤ[***GUNS***](https://guns.lol/berrybubble)
